@@ -115,4 +115,4 @@ Version 1 is complete as an internal tool for a GEO agency, running on sample da
 
 ---
 
-**Achintya** · Founder & product manager · [LinkedIn](#)
+**Achintya** · Founder, Marketer, & Product Manager · www.linkedin.com/in/achintya-rawal
